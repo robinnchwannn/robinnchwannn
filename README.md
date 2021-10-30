@@ -1,5 +1,8 @@
 - 👋 Hi, I’m robinnchwannn
-- 📫 How to reach me ... althearamos629@gmail.com
+- 📫 How to reach me ... 
+- gmail -  althearamos629@gmail.com
+- discord - NingNingqlit#5366
+- 
 
 <!---
 robinnchwannn/robinnchwannn is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
